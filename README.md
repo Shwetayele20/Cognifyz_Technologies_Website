@@ -6,4 +6,4 @@
 ## Demo
 
 
-https://github.com/Shwetayele20/Cognifyz_Technologies_Website/blob/main/Cognifyz%20Techmologies%20website.mp4
+(https://github.com/user-attachments/assets/d59a1f44-8503-4ca8-a921-bf439c521cf1)
